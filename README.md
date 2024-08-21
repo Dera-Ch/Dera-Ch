@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dera-Ch
-- 👀 I’m interested in ...
+- 👀 I’m looking forward to gaining new skills and building my career
 - 🌱 I’m currently learning software development
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love anime
